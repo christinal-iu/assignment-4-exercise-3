@@ -4,3 +4,4 @@
 4. Mix until combined
 5. Bake at 350 degrees for 70 minutes
 
+6. Take a massive bite out of the pound cake once it has cooled
